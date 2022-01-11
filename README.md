@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @juniormares
+- 👀 I’m interested in computer science and everything computers. also music and videogames.
+- 🌱 I’m currently a senior at Dominican University studying computer science.
+- 📫 How to reach me: email is junior.mares903@gmail.com
